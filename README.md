@@ -1,0 +1,2 @@
+# AI_ART_PROJECT
+School
